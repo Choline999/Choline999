@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @Choline999
+- 👀 I’m interested in just reading webnovels!
+- 🌱 I’m currently learning Excel,Mysql etc Ig little bit...Not a pro though
+- 💞️ I’m looking to collaborate on nothing specifically.Just passing by ...
+- 📫 How to reach me : https://t.me/Idkidkidkidkidkidm
+- 😄 Pronouns: SHE/HER
+- ⚡ Fun fact: Apparently,Man on BALD MOUNTAIN IS STILL  WAITING!!!...
+-     Likes:Coffee,food,isekai
+-     Dislikes:Ahh I love you all .It is just that I am a bit reticent and insecure so pardon.Also,I am afraid of animals...but I love them
